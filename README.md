@@ -1,4 +1,4 @@
-## Opa, Bem-vindo(a) ao meu perfil misabel-18 😉
+## Opa, Bem-vindo(a) ao meu perfil 😉
 
  <div>
    <a href="https://github.com/misabel-18">
